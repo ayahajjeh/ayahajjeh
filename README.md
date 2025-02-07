@@ -8,7 +8,7 @@ Apart from software engineering, I  enjoy all types of digital design from UI/UX
 
 If you're an individual looking for a digital designer for freelance work, please feel free to reach out. I'm also always happy to connect with new people ❤️
 
-And as always, Women, Life, Freedom 🦋 trans lives matter 🏳️‍⚧️ and Black Lives Matter ✊🏿
+And as always, Women, Life, Freedom 🦋 trans lives matter 🏳️‍⚧️ Free Palestine 🇵🇸 and Black Lives Matter ✊🏿
 
 <!--
 **ayahajjeh/ayahajjeh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
