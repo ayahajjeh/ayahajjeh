@@ -1,4 +1,4 @@
-Recent graduate from Dartmouth, trying to navigate my way into Machine Learning while balancing my passion and responsibility for Middle Eastern politics and history.
+Recent graduate from Dartmouth, trying to navigate my way into Machine Learning while balancing my passion and responsibility for SWANA politics and history.
 
 <!--
 **ayahajjeh/ayahajjeh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
